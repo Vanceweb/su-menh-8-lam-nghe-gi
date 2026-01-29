@@ -27,7 +27,7 @@ Họ là những người có tố chất lãnh đạo, tư duy chiến lược 
 
 Chính những tố chất này giúp người mang chỉ số sứ mệnh 8 nghề nghiệp thành công trong nhiều lĩnh vực liên quan đến kinh doanh, tài chính và quản lý.
 
-> **[Sứ mệnh 9 làm nghề gì](https://linkr.bio/Vanceweb)** để lan tỏa yêu thương và tạo giá trị cho cộng đồng? Khám phá ngay để chọn đúng hướng đi!
+> **[Sứ mệnh 9 làm nghề gì](https://www.echinacities.com/blogs/detail/2646464/25424)** để lan tỏa yêu thương và tạo giá trị cho cộng đồng? Khám phá ngay để chọn đúng hướng đi!
 
 **Sứ mệnh 8 làm nghề gì? Những ngành nghề phù hợp nhất**
 --------------------------------------------------------
